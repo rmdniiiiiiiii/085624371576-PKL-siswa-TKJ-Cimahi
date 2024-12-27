@@ -11,6 +11,6 @@ Hubungi kontak dibawah ini
 
 https://pklrplbandungbaratterbaik.blogspot.com/
 
-https://pklrplbandungbaratterbaik.blogspot.com/2024/12/085624371576praktik-kerja-lapangan-tkj.html
+https://pklrplbandungbaratterbaik.blogspot.com/2024/12/085624371576magang-jurusan-tkj.html
+https://www.edocr.com/v/bkoemlyb/rmdniftria251/085624371576pkl-jurusan-tkj-batujajar-terbaik
 
-https://www.edocr.com/v/bbpdnp7z/rmdniftria251/085624371576magang-jurusan-tkj-batujajar-profesion
